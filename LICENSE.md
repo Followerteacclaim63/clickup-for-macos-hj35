@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate ClickUp for macOS extension with ClickUp for macOS new Extension: focus mode & task automation. Featuring focus mode and task automation, it's the best choice for
 
 
 
